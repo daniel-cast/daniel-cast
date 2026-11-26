@@ -3,6 +3,7 @@
 - 🌱 I'm currently learning
 - 📫 How to contact me:
   ig: sonny_jpg
+  
   tw(x): @Sonny_jpgg
 
 <!---
